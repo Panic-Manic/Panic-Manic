@@ -23,7 +23,8 @@
 
 [!] 𝙎𝙤𝙢𝙚 𝙣𝙤𝙩𝙚𝙨;
 
-- 𝘿𝙊 𝙉𝙊𝙏 𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎 & 𝙊𝘾𝙎.
+- !!𝘿𝙊 𝙉𝙊𝙏 𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎 & 𝙊𝘾𝙎.!!
+ 
 - I dislike Hate Speech/harassment in general,, ┊✰
 - W2I if i don't answer,, I'm probably drawing,, ┊✰ 
 - If my status is set as "Busy,," then I'm most likely AFK,, or just don't feel like INT with anyone,, ┊✰
