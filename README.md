@@ -1,7 +1,5 @@
 ･:*:･ﾟ☆ ｡･:*:𝐻𝐼 𝐻𝐼!!｡･:*:･ﾟ★,｡･:*:･
 
-![55360860_z7FUr0NN4hQafhj](https://github.com/user-attachments/assets/012cc901-3ddc-4266-b2ac-c43b18e0fe6b)
-
 ————————————————————
 
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
@@ -29,7 +27,8 @@
 - W2I if i don't answer,, I'm probably drawing,, ┊✰
 - If my status is set as "Busy,," then I'm most likely AFK,, or just don't feel like INT with anyone,, ┊✰
 
-  ![output-onlinegiftools](https://github.com/user-attachments/assets/19b30fd6-7e26-4101-8bd1-7197fe75d37f)
+
+![55360860_z7FUr0NN4hQafhj](https://github.com/user-attachments/assets/549c5dde-3c13-4fe6-b71e-9f80be14b176)
 
 
 
