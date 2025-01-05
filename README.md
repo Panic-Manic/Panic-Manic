@@ -27,8 +27,7 @@
 - W2I if i don't answer,, I'm probably drawing,, ┊✰
 - If my status is set as "Busy,," then I'm most likely AFK,, or just don't feel like INT with anyone,, ┊✰
 
-
-![55360860_z7FUr0NN4hQafhj](https://github.com/user-attachments/assets/549c5dde-3c13-4fe6-b71e-9f80be14b176)
+![55360860_z7FUr0NN4hQafhj-ezgif com-resize](https://github.com/user-attachments/assets/056b5806-6991-42af-a8e2-02c45dd6067e)
 
 
 
