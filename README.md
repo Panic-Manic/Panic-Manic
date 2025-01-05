@@ -4,7 +4,7 @@
 
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
-- You can call me Powder,, or any nickname you give me,, ┊✰
+- You can call me Powder,, or Pow/Pow-pow,, ┊✰
 - Do Interact with me,, I don't bite! (Unless you get on my nerves that is.) ┊✰
 - I Love Arcane RPS! ┊✰
 - Fandoms I'm in; Arcane,, MLP,, Marvel,, and more.. ┊✰ 
