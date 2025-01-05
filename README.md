@@ -7,7 +7,8 @@
 - You can call me Powder,, or any nickname you give me,, ┊✰
 - Do Interact with me,, I don't bite! (Unless you get on my nerves that is.) ┊✰
 - I Love Arcane RPS! ┊✰
-- Fandoms I'm in; Arcane,, MLP,, Marvel,, and more.. ┊✰       
+- Fandoms I'm in; Arcane,, MLP,, Marvel,, and more.. ┊✰
+- Mostly playing as; Jinx/Powder,, or Sevika,,       
 
 ————————————————————
 
