@@ -1,16 +1,27 @@
-## Hi there 👋
+･:*:･ﾟ☆ ｡･:*:𝐻𝐼 𝐻𝐼!!｡･:*:･ﾟ★,｡･:*:･
 
-<!--
-**Panic-Manic/Panic-Manic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+————————————————————
 
-Here are some ideas to get you started:
+[♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- You can call me Powder,, or any nickname you give me,, ┊✰
+- Do Interact with me,, I don't bite! (Unless you get on my nerves that is.) ┊✰
+- Fandoms I'm in; Arcane,, MLP,, Marvel,, and more.. ┊✰       
+
+————————————————————
+
+[✖] 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚;
+
+- R̶a̶c̶i̶s̶t̶,,      
+- P̶e̶d̶o̶,,        
+- S̶e̶x̶i̶s̶t̶,,        
+- Homophobic,,  
+- Proshipper,,  
+
+  ————————————————————
+
+[!] 𝙎𝙤𝙢𝙚 𝙣𝙤𝙩𝙚𝙨;
+
+- I dislike Hate Speech/harassment in general,, ┊✰
+- W2I if i don't answer,, I'm probably drawing,, ┊✰
+- If my status is set as "Busy," then I'm most likely AFK, or just don't feel like INT w anyone. ┊✰
