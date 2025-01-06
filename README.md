@@ -6,7 +6,7 @@
 
 - You can call me Powder,, or whatever nickname you give me,, ┊✰
 - I Love Arcane RPS! ┊✰
-- Fandoms I'm in; Arcane,, MLP,, Marvel,, and more.. ┊✰
+- Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game and more.. ┊✰
 
 ————————————————————
 
