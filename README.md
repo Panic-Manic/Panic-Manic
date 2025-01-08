@@ -4,7 +4,7 @@
 
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
-- You can call me Sae,, or Powder,, or whatever nickname you give me,, ┊✰
+- You can call me Sae,, or whatever nickname you give me,, ┊✰
 - Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, and more.. ┊✰
 
 ————————————————————
