@@ -5,6 +5,7 @@
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
 - You can call me Sae/새벽,, or whatever nickname you give me,, ┊✰
+- :flag_ru::flag_de::flag_gb::flag_kr: ┊✰
 - Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, and more.. ┊✰
 
 ————————————————————
