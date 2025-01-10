@@ -6,7 +6,7 @@
 
 - You can call me Sae/새벽,, or whatever nickname you give me,, ┊✰
 - Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, and more.. ┊✰
-- I can speak German,, Russian,, English (obv),, and am learning Korean. ┊✰
+- I can speak German,, Russian,, English (obv),, and am learning French & Korean. ┊✰
 
 ————————————————————
 
