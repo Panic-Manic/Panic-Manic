@@ -5,7 +5,7 @@
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
 - Name's 새벽 (Sae-Byeok),, but you can call me Sae!,, any other nickname you give me are welcome too!,, ┊✰ 
-- Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, and more,, ┊✰
+- Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, As The Gods Will,, and more,, ┊✰
 - I can speak German,, Russian,, English,, Korean & French ┊✰
 
 ————————————————————
