@@ -31,6 +31,8 @@
 
 [!] 𝙎𝙤𝙢𝙚 𝙣𝙤𝙩𝙚𝙨;
 
+- No,, I didnt name myself after 067 from SG,, we just happened to share the same name,,
+
 - !!𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙎𝙋/𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎/𝘾𝙊𝙎 & 𝙊𝘾𝙎.!! ┊✰
 - Don't be surprised if I'm being rude,, means you got on my nerves,, ┊✰
 - Being rude to my friends is a big no no,, ┊✰
