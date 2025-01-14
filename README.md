@@ -4,9 +4,9 @@
 
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
-- You can call me Dawn or Sae/새벽,, any nickname you give me is also alr,, ┊✰
-- Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, and more.. ┊✰
-- I can speak German,, Russian,, English (obv),, and am learning French & Korean. ┊✰
+- Name's 새벽 (Sae-Byeok),, but you can call me Sae!,, any other nickname you give me are welcome too!,, ┊✰ 
+- Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, and more,, ┊✰
+- I can speak German,, Russian,, English,, Korean & French ┊✰
 
 ————————————————————
 
