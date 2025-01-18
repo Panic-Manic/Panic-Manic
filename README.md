@@ -14,7 +14,7 @@
 
 - Online; INT,,
 - Away; Semi-AFK/AFK,, Offtab,, [W2I],,
-- Busy; DNIUF,,(Please DNIUF or you'll be hidden.)
+- Busy; DNIUF,,(or you'll be hidden.)
 - LF RP/Chat are obv,, [INT],,
   
 ————————————————————
@@ -31,6 +31,7 @@
 
 [!] 𝙎𝙤𝙢𝙚 𝙣𝙤𝙩𝙚𝙨;
 
+- DNIUF = Asking for directions/locations is an exception. 
 - DNC in my name stands for "DO NOT COPY" but being covered annoys the living hell out of me too. ┊✰
 - !!𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙎𝙋/𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎/𝘾𝙊𝙎 & 𝙊𝘾𝙎.!! ┊✰
 - Don't be surprised if I'm being rude,, means you got on my nerves,, ┊✰
