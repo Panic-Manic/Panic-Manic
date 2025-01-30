@@ -38,7 +38,7 @@
 - !!𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙎𝙋/𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎/𝘾𝙊𝙎 & 𝙊𝘾𝙎.!! ┊✰
 - DNC in my name stands for "DO NOT COPY" but being covered annoys the living hell out of me too. ┊✰
 - DNIUF = Asking for directions/locations is an exception. ┊✰
-- Don't be surprised if I'm being rude,, means you got on my nerves /&/ are one of these things on my DNI list,, ┊✰
+- If I’m being rude,, don’t be surprised — it probably means you’ve annoyed me and fall under something on my DNI list,, ┊✰
 
 
   
