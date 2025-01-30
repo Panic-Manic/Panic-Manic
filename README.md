@@ -29,7 +29,7 @@
 - Darkshippers,,
 - Trollers,,
 - Ragebaiters,,
-- Anyone engaging in non-joking toxicity,,
+- Anyone engaging in genuine toxicity,, (not playful or joking),,
 
   ————————————————————
 
