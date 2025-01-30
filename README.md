@@ -19,22 +19,28 @@
   
 ————————————————————
 
-[✖] 𝘿𝙉𝙄 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚;
+[✖] 𝘿𝙉𝙄;
                                                           
-- R̶a̶c̶i̶s̶t̶,,      
-- P̶e̶d̶o̶,,        
-- S̶e̶x̶i̶s̶t̶,,        
-- Homophobic,,  
-- Proshipper,,  
+- R̶a̶c̶i̶s̶t̶s,,      
+- P̶e̶d̶o̶s,,        
+- S̶e̶x̶i̶s̶t̶s,,        
+- Homophobes,,  
+- Proshippers,,
+- Darkshippers,,
+- Trollers,,
+- Ragebaiters,,
+- Anyone engaging in non-joking toxicity,,
 
   ————————————————————
 
 [!] 𝙎𝙤𝙢𝙚 𝙣𝙤𝙩𝙚𝙨;
 
-- DNIUF = Asking for directions/locations is an exception. ┊✰
-- DNC in my name stands for "DO NOT COPY" but being covered annoys the living hell out of me too. ┊✰
 - !!𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙎𝙋/𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎/𝘾𝙊𝙎 & 𝙊𝘾𝙎.!! ┊✰
-- Don't be surprised if I'm being rude,, means you got on my nerves,, ┊✰
+- DNC in my name stands for "DO NOT COPY" but being covered annoys the living hell out of me too. ┊✰
+- DNIUF = Asking for directions/locations is an exception. ┊✰
+- Don't be surprised if I'm being rude,, means you got on my nerves /&/ are one of these things on my DNI list,, ┊✰
+
+
   
 ![55360860_z7FUr0NN4hQafhj-ezgif com-resize](https://github.com/user-attachments/assets/056b5806-6991-42af-a8e2-02c45dd6067e)
 
