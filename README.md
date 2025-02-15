@@ -4,9 +4,9 @@
 
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;
 
-- Name's 새벽 (Sae-Byeok),, but you can call me Sae!,, any other nickname you give me are welcome too!,, ┊✰ 
-- Fandoms I'm in; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, As The Gods Will,, Girl from Nowhere,, and more,, ┊✰
-- I can speak  Korean,, Russian,, German,, English & French ┊✰
+- Name's 새벽 (Sae-Byeok),, but you can call me Sae!,, any other nickname you give me are welcome too!,, ┊✰
+- I'm a Polyglot,, but I prefer speaking on English,, ┊✰
+- Fandoms; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, As The Gods Will,, Girl from Nowhere,, and more,, ┊✰
   
 ————————————————————
 
@@ -14,7 +14,7 @@
 
 - Online; INT,,
 - Away; Semi-AFK/AFK,, Offtab,, [W2I],,
-- Busy; DNIUF,,(or you'll be hidden.)
+- Busy; DNIUF,,(or you'll be hidden,, unless its one of the exceptions listed below,,)
 - LF RP/Chat are obv,, [INT],,
   
 ————————————————————
@@ -37,7 +37,7 @@
 
 - !!𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙎𝙋/𝘾𝙊𝙋𝙔 𝙈𝙔 𝘾𝙃𝘼𝙍𝙎/𝘾𝙊𝙎 & 𝙊𝘾𝙎.!! ┊✰
 - DNC in my name stands for "DO NOT COPY" but being covered annoys the living hell out of me too. ┊✰
-- DNIUF = Asking for directions/locations is an exception. ┊✰
+- DNIUF !EXCEPTIONS! = Asking for; directions/locations,, How to get something/Info,, ┊✰
 - If I’m being rude,, don’t be surprised — it probably means you’ve annoyed me and fall under something on my DNI list,, ┊✰
 
 
