@@ -11,6 +11,8 @@
 - SG; JIBYEOK INT!!,, ┊✰
 - C + H,, ┊✰
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=768c9e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
+
 ————————————————————
 
 [!] 𝙎𝙩𝙖𝙩𝙪𝙨 𝙄𝙣𝙛𝙤;
