@@ -8,7 +8,6 @@
 - Name's 새벽 (Sae-Byeok),, but you can call me Sae!,, (Crazy to have the same name as a SG char)),, any other nicknames you give me are welcome too!,, ┊✰
 - I'm a Polyglot,, but I prefer speaking on English,, ┊✰
 - Fandoms; Arcane,, MLP,, Marvel,, Squid Game,, Pyramid Game,, As The Gods Will,, Girl from Nowhere,, and more,, ┊✰
-- SG; JIBYEOK INT!!,, ┊✰
 - C + H,, ┊✰
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=768c9e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
