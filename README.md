@@ -9,6 +9,8 @@
 - Polyglot. I speak English, but I prefer silence.
 - Fandoms? A few favorites. You figure them out.  
 - I don’t share much. Either you get it, or you don’t.
+- C + H if same fandom. 
+  
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=768c9e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
 
