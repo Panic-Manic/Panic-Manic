@@ -26,7 +26,7 @@
 
 [!] 𝙉𝙤𝙩𝙚𝙨;  
 
-- **Don’t copy me.** Be original.  
+- **Don’t copy me OR take inspo  off of my skins.** Be original.  
 - If I’m quiet, I’m either thinking or just not interested.  
 - I don’t owe anyone an explanation.  
 
