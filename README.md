@@ -5,7 +5,7 @@
 
 [♡] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;  
 
-- 새벽 (Sae-Byeok). Just Sae.  
+- 새벽 / 새연 (Sae-Byeok / Sae-yeon). Just Sae.  
 - Polyglot. I mainly speak English, but I prefer to be silent.
 - Fandoms? A few favorites. You figure them out.  
 - I don’t share much. Either you get it, or you don’t.
