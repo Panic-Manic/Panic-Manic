@@ -29,6 +29,8 @@
 - If I’m quiet, I’m either thinking or just not interested.  
 - I don’t owe anyone an explanation.  
 
+AOUAD RP server!!
+https://discord.gg/tFThBzWN4w
  
 
 
