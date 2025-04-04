@@ -1,5 +1,6 @@
-𝐇𝐈.  
-![](https://komarev.com/ghpvc/?username=Panic-Manic)  
+![](https://komarev.com/ghpvc/?username=Panic-Manic)
+
+![wnAJ7R (1)](https://github.com/user-attachments/assets/a0fb8b3c-d3d0-4b58-aeb8-0ba741298aad)
 
 ————————————————————  
 
@@ -27,11 +28,17 @@
 
 - **Don’t copy me OR take inspo off of my skins.** Be original.  
 - If I’m quiet, I’m either thinking or just not interested.  
-- I don’t owe anyone an explanation.  
+- I don’t owe anyone an explanation.
 
-AOUAD RP server!!
-https://discord.gg/tFThBzWN4w
+![girls_walk (1)](https://github.com/user-attachments/assets/aaf5bb13-eed3-43ff-8090-940ed5615a89)
+
+
+
+
+
+
  
+
 
 
 
