@@ -19,7 +19,7 @@
 
 ❤️🎵 - Some love songs are meant to be whispered, not sung aloud.
 
-🧪 - Class 2-5 doesn’t look the same anymore.
+🧪🏫 - Class 2-5 doesn’t look the same anymore.
 
 🦑🎮 - Can’t play fair when there’s no fairness.
 
