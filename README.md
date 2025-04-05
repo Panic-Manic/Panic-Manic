@@ -21,7 +21,7 @@
 
 🧪🏫 - *Class 2-5* doesn’t look the same anymore... not since the *outbreak* turned the *hallways into a battlefield*.
 
-🦑🎮 - In a game where the stakes are life, *fairness was never an option.* Welcome to the Squid Game.
+🦑🎮 - In a game where the stakes are life, *fairness was never an option.* Welcome to the *Squid Game.*
 
 🔪🩸 - She doesn’t need an invite. Nanno’s already *seated in the back of your class*, waiting to *expose your darkest secret.*
 
