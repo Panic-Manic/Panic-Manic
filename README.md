@@ -17,13 +17,13 @@
 
 📄🌸 - Some doors weren’t meant to be opened. *Curiosity killed the Kat.*
 
-❤️🎵 - Some *love songs* are meant to be *whispered*, not sung aloud.
+❤️🎵 - Some *love songs* should only be *heard in the quiet between us*, not sung to a world that doesn't understand the melody.
 
-🧪🏫 - *Class 2-5* doesn’t look the same anymore.
+🧪🏫 - *Class 2-5* doesn’t look the same anymore... not since the *outbreak* turned the *hallways into a battlefield*.
 
-🦑🎮 - Can’t *play fair* when there’s *no fairness.*
+🦑🎮 - In a game where the stakes are life, *fairness was never an option.* Welcome to the Squid Game.
 
-🔪🩸 - She doesn't need an invite; *she’s already in your class.*
+🔪🩸 - She doesn’t need an invite. Nanno’s already *seated in the back of your class*, waiting to *expose your darkest secret.*
 
 ————————————————————  
 
