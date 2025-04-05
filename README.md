@@ -25,6 +25,8 @@
 
 🔪🩸 - She doesn’t need an invite. Nanno’s already *seated in the back of your class*, waiting to *expose your darkest secret.*
 
+🌑🔪 - After the sun sets, the whispers begin. It’s your turn to guess… or be guessed.
+
 ————————————————————  
 
 [✖] 𝘿𝙉𝙄;  
