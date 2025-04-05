@@ -27,6 +27,8 @@
 
 🌑🔪 - After the sun sets, the whispers begin. It’s your turn to guess… or be guessed.
 
+⚪🎮 - The game has begun. The gods’ eyes are upon you, and there’s no turning back now.
+
 ————————————————————  
 
 [✖] 𝘿𝙉𝙄;  
