@@ -15,6 +15,8 @@
 
 ———————————————————— 
 
+[♡︎] 𝙁𝙖𝙣𝙙𝙤𝙢𝙨; [𝘾𝙤𝙙𝙚𝙙! 𝙞𝙛𝙮𝙠𝙮𝙠];
+
 📄🌸 - Some doors weren’t meant to be opened. *Curiosity killed the Kat.*
 
 ❤️🎵 - Some *love songs* should only be *heard in the quiet between us*, not sung to a world that doesn't understand the melody.
