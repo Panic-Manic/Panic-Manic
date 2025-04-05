@@ -15,15 +15,15 @@
 
 ———————————————————— 
 
-📄🌸 - Some doors weren’t meant to be opened. Curiosity killed the Kat.
+📄🌸 - Some doors weren’t meant to be opened. *Curiosity killed the Kat.*
 
-❤️🎵 - Some love songs are meant to be whispered, not sung aloud.
+❤️🎵 - Some *love songs* are meant to be *whispered*, not sung aloud.
 
-🧪🏫 - Class 2-5 doesn’t look the same anymore.
+🧪🏫 - *Class 2-5* doesn’t look the same anymore.
 
-🦑🎮 - Can’t play fair when there’s no fairness.
+🦑🎮 - Can’t *play fair* when there’s *no fairness.*
 
-🔪🩸 - She doesn't need an invite; she’s already in your class.
+🔪🩸 - She doesn't need an invite; *she’s already in your class.*
 
 ————————————————————  
 
