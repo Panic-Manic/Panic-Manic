@@ -31,6 +31,8 @@
 
 ⚪🎮 - The game has begun. The gods’ eyes are upon you, and there’s no turning back now.
 
+[Took me a while to think of these]
+
 ————————————————————  
 
 [✖] 𝘿𝙉𝙄;  
