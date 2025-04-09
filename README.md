@@ -33,6 +33,8 @@
 
 ⚪🎮 - The game has begun. The gods’ eyes are upon you, and there’s no turning back now.
 
+🕹️🔦 – Check the cams, but don’t stay too long. They move faster when you watch.
+
 [Took me a while to think of these]
 
 ————————————————————  
