@@ -25,6 +25,8 @@
 
 🦑🎮 - In a game where the stakes are life, *fairness was never an option.*
 
+🔺📊 - Everyone wants the crown. No one wants the bruises.
+
 🔪🩸 - She doesn’t need an invite. Nanno’s already *seated in the back of your class*, waiting to *expose your darkest secret.*
 
 🌑🔪 - After the sun sets, the whispers begin. It’s your turn to guess… or be guessed.
