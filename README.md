@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Panic-Manic&style=for-the-badge&color=672237#&label=Occult+Club+Members&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Occult+Club+Members&abbreviated=true&style=for-the-badge&color=672237#)
 
 ![wnAJ7R (1)](https://github.com/user-attachments/assets/a0fb8b3c-d3d0-4b58-aeb8-0ba741298aad)
 
