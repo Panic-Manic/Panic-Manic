@@ -2,7 +2,7 @@
 
 ![wnAJ7R (1)](https://github.com/user-attachments/assets/a0fb8b3c-d3d0-4b58-aeb8-0ba741298aad)
 
-————————————————————  
+-----------------------------------------
 
 [✰] 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;  
 
@@ -13,7 +13,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=672237&interchange=true&bar_color=672237#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)  
 
-———————————————————— 
+-----------------------------------------
 
 [♡︎] 𝙁𝙖𝙣𝙙𝙤𝙢𝙨; [𝘾𝙤𝙙𝙚𝙙! 𝙞𝙛𝙮𝙠𝙮𝙠];
 
@@ -37,7 +37,7 @@
 
 [Took me a while to think of these]
 
-————————————————————  
+----------------------------------------- 
 
 [✖] 𝘿𝙉𝙄;  
 
@@ -45,7 +45,7 @@
 - If you can’t show basic respect, don’t bother.  
 - Trolling isn't a personality. Keep moving.  
 
-————————————————————  
+-----------------------------------------
 
 [!] 𝙉𝙤𝙩𝙚𝙨;  
 
