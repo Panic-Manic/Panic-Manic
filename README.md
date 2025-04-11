@@ -11,7 +11,7 @@
 - I observe more than I interact.   
 - I don’t share much. Either you get it, or you don’t.
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=768c9e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=672237&interchange=true&bar_color=672237#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)  
 
 ———————————————————— 
 
