@@ -1,14 +1,12 @@
-![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Occult+Club+Members&abbreviated=true&style=for-the-badge&color=672237#)
+![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Stalkers&abbreviated=true&style=for-the-badge&color=672237#)
 
-![wnAJ7R (1)](https://github.com/user-attachments/assets/a0fb8b3c-d3d0-4b58-aeb8-0ba741298aad)
-
------------------------------------------
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=672237&interchange=true&bar_color=672237#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)  
 
 𝙄𝙈𝙋𝙊𝙍𝙏𝘼𝙉𝙏;;  
 
 - **Don’t copy me OR take inspo off of my skins.** Be original. [YES. THIS HAS HAPPENED. RIGHT INFRONT OF ME.]  
 - If I’m quiet, I’m either thinking or just not interested.
-  
+
 -----------------------------------------
 
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
@@ -30,8 +28,6 @@
 - Night Has Come,,
 - Girl from Nowhere,,
 - Pyramid Game,, 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=672237&interchange=true&bar_color=672237#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)  
 
 -----------------------------------------
 
