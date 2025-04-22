@@ -9,10 +9,10 @@
 
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
 
-- Call me Sae,, !!
+- Call me Sae,, ! ! ISFP-T,,! ! 🎸,, ! !
 - [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
-- INITIATION MODULE;; OFF — pls interact first,, !!
+- INITIATION MODULE;; OFF — pls interact first,, ! !
 
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=672237&interchange=true&bar_color=672237#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)  
 
