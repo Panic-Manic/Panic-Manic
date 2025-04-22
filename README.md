@@ -33,9 +33,15 @@
 
 [✖] 𝘿𝙉𝙄;  
 
-The usual trash: racists, pedos, sexists, homophobes, pro/comp/darkshippers.  
-If you can’t show basic respect, don’t bother.  
-Trolling isn't a personality. Keep moving.  
+The usual trash:
+- racists,,
+- pedos,,
+- sexists,,
+- homophobes,,
+- pro/comp/darkshippers,,
+
+- If you can’t show basic respect,, don’t bother,, ! !
+- Trolling isn't a personality,, Keep moving,, ! !
 
 -----------------------------------------
 
