@@ -33,12 +33,11 @@
 
 [✖] 𝘿𝙉𝙄;  
 
-The usual trash:
-- racists,,
-- pedos,,
-- sexists,,
-- homophobes,,
-- pro/comp/darkshippers,,
+- Racists,,
+- Pedos,,
+- Sexists,,
+- Homo/Transphobes,,
+- Pro/Comp/Darkshippers,,
 
 - If you can’t show basic respect,, don’t bother,, ! !
 - Trolling isn't a personality,, Keep moving,, ! !
