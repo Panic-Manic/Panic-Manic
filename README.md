@@ -9,7 +9,7 @@
 
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
 
-- Call me Sae,, ! ! ISFP-T,,! ! 🎸,, ! !
+- Call me Sae,, ISFP-T,, 🎸,, ! !
 - [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
