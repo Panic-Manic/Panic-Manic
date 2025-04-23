@@ -1,5 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Stalkers&abbreviated=true&style=for-the-badge&color=672237#)
 
+$${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\space Humanity,\space Until\space then,\space \color{red}DONT.\ YOU.\space DARE.\space SAY\space THAT\space WE\space ARE\space THE\space SAME."\space}$$ - No More
+
+
+
 𝙄𝙈𝙋𝙊𝙍𝙏𝘼𝙉𝙏;;  
 
 - **Don’t copy me OR take inspo off of my skins.** Be original. [YES. THIS HAS HAPPENED. RIGHT INFRONT OF ME.]  
