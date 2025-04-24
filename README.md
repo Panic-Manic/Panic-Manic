@@ -32,7 +32,10 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 - All of Us Are Dead,,
 - Night Has Come,,
 - Girl from Nowhere,,
-- Pyramid Game,, 
+- Pyramid Game,,
+- Jurassic Park,,
+
+Theres Probably even more that I forgot about,,
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
