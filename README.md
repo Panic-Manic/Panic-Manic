@@ -25,6 +25,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 𝙁𝘼𝙉𝘿𝙊𝙈𝙎;;
 
 - FNAF,, [Fun fact; I've been in the Fandom since 2015!!]
+- Marvel,,
 - Project Kat / Paper Lily,,
 - Whisper Me a Love Song,,
 - Squid Game,, [2021!!]
