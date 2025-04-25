@@ -14,7 +14,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
 
 - Call me Sae,, ISFP,, 🎸,, ! !
-- [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
+- [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,, [Mostly NV when upset,, ! !]
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
 
