@@ -14,7 +14,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
 
 - Call me Sae,, ISFP,, 🎸,, ! !
-- [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,, [Mostly NV when upset,, ! !]
+- [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
 
@@ -33,9 +33,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 - Night Has Come,,
 - Girl from Nowhere,,
 - Pyramid Game,,
-- Jurassic Park,,
-
-Theres Probably even more that I forgot about,,
+- Jurassic Park/world,,
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
