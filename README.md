@@ -7,7 +7,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 𝙄𝙈𝙋𝙊𝙍𝙏𝘼𝙉𝙏;;  
 
 - **Don’t copy me OR take inspo off of my skins.** Be original. [YES. THIS HAS HAPPENED. RIGHT INFRONT OF ME.]  
-- If I’m quiet, I’m either thinking or just not interested.
+- If I’m quiet, I’m either thinking, offtab or just not interested.
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
