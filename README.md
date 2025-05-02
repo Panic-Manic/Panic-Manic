@@ -12,7 +12,9 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
 
-- Call me Norah or Mike,, ! ! [depends on my current preff prns,, check 1st link for Info,, ! !]
+[Please read the 1st and 2nd link if you decide to INT]
+
+- Call me Norah or Mike,, ! ! [depends on my current preff prns,, 1st link for Info,, ! !]
 - [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
@@ -22,18 +24,6 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-[✖] 𝘿𝙉𝙄;  
-
-- Racists,,
-- Pedos,,
-- Sexists,,
-- Homo/Transphobes,,
-- Pro/Comp/Darkshippers,,
-
-- If you can’t show basic respect,, don’t bother,, ! !
-- Trolling isn't a personality,, Keep moving,, ! !
-
-▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
 
 
