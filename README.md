@@ -12,7 +12,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 
 𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
 
-- Call me Norah or Mike,, ! ! [depends on current preff prns,, check 1st link for Info,, ! !]
+- Call me Norah or Mike,, ! ! [depends on my current preff prns,, check 1st link for Info,, ! !]
 - [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
