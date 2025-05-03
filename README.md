@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Souls+freed&style=for-the-badge&color=5E1515#)
 
-$${\color{white}"If\space we\space could\space only\space shed\space our\space shells...\space Wear\space a\space mask \space and\space escape\space these\space cells...\space}$$
+$${\color{white}"If\space we\space could\space only\space shed\space our\space shells...\space Wear\space a\space mask \space and\space escape\space these\space cells..."\space}$$
 $${\color{white}"On\space the\space surface,\space we\space could\space start\space new...\color{red}WE.\ COULD.\space GO.\space IF.\space WE.\space LOOKED.\space LIKE.\space YOU."\space}$$
 
 
