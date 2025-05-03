@@ -14,7 +14,7 @@ $${\color{white}"-But\space Maybe\space one\space day\space you'll\space find\sp
 
 [Please read the 2nd link if you decide to INT,, ! !]
 
-- Call me Michael or Mike forr short,,
+- Call me Michael or Mike for short,,
 - [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
