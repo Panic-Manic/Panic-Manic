@@ -4,16 +4,9 @@ $${\color{white}"If\space we\space could\space only\space shed\space our\space s
 $${\color{white}"On\space the\space surface,\space we\space could\space start\space new...\color{red}WE.\ COULD.\space GO.\space IF.\space WE.\space LOOKED.\space LIKE.\space YOU."\space}$$
 
 
-𝙄𝙈𝙋𝙊𝙍𝙏𝘼𝙉𝙏;;  
-
-- **Don’t copy me OR take inspo off of my skins.** Be original. [This happened so many times..]  
-
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-𝘼𝙗𝙤𝙪𝙩 𝙢𝙚;;
-
-[Please read the 2nd link if you decide to INT,, ! !]
-
+- **Don’t copy me OR take inspo off of my skins.** Be original. [This happened so many times..]  
 - Call me Michael or Mike for short,,
 - [Verbal] ⇄ [SV] ⇄ [NV] — fluctuates with mood,,
 - Interaction = yes,, Fandom mutuals = double yes,,
