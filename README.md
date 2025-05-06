@@ -14,7 +14,7 @@ $${\color{white}"On\space the\space surface,\space we\space could\space start\sp
 - Interaction = yes,, Fandom mutuals = double yes,,
 - INITIATION MODULE;; OFF — pls interact first,, ! !
 
-Click link for more Info,, [If you're interested,,]
+Click the first link for more Info,,
 
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=5E1515&interchange=true&bar_color=5E1515#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
 
