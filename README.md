@@ -6,13 +6,12 @@ $${\color{white}"On\space the\space surface,\space we\space could\space start\sp
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-**Don’t copy me OR take inspo off of my skins.** Be original. [This happened so many times..]  
-
+**Don’t copy me OR take inspo off of my skins.** Be original.
 
 - Call me Michael,,
 - Feel free to Interact with me,, ! !
-- I dont mind Roleplays or anything as long as you keep it respectful,, ! !
-- I usually dont INT first,,
+- I don't mind Roleplays or anything, as long as you keep it respectful,, ! !
+- I usually don't INT first,,
 
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=5E1515&interchange=true&bar_color=5E1515#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
 
