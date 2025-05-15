@@ -9,7 +9,6 @@ $${\color{white}"I'm\space allergic\space to\space the\space Midwest"\space}$$
 - Name? call me Yelena,, 
 - Usually chilling with friends or just vibing solo,,
 - Feel free to Interact with me,, ! !
-- I usually don't INT first,,
 - I don't mind Roleplays or anything, as long as you keep it respectful,, ! !
   
 
