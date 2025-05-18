@@ -10,6 +10,10 @@ $${\color{white}"Pain\space and\space suffering\space is\space every\space day\s
 - Usually chilling with friends or just vibing solo,,
 - Feel free to Interact with me,, ! !
 - I don't mind Roleplays or anything, as long as you keep it respectful,, ! !
+
+**Note;;**
+- If I ignore your interaction, it’s not personal,, ! ! ↴
+- I might be multitasking, AFK / Semi-AFK, or just not in the mood,, Try again another time,, !! 
   
 
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=3F704D&interchange=true&bar_color=3F704D#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
