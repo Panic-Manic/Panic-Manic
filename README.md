@@ -15,8 +15,8 @@ $${\color{white}"Pain\space and\space suffering\space is\space every\space day\s
 - If I ignore your interaction or respond rudely, it’s not personal,, ! ! ↴
 - I might be multitasking, AFK/semi-AFK, or just not in the mood… try again another time,, ♡
 -----
-- Although I speak Russian and German alongside English, I usually only respond in English,,
-- ↳ even if you speak to me in either of the other two languages,, ! !
+- Although I speak Russian alongside English, I usually only respond in English,,
+- ↳ even if you speak to me in Russian — (unless it’s absolutely necessary,,)  ! !
 
   
 
