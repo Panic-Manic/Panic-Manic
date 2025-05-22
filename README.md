@@ -14,11 +14,8 @@ $${\color{white}"Pain\space and\space suffering\space is\space every\space day\s
 **Note;;**
 - If I ignore your interaction or respond rudely, it’s not personal,, ! ! ↴
 - I might be multitasking, AFK/semi-AFK, or just not in the mood… try again another time,, ♡
------
-- Although I speak Russian alongside English, I usually only respond in English,,
-- ↳ even if you speak to me in Russian — (unless it’s absolutely necessary,,)  ! !
 
-  
+
 
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=3F704D&interchange=true&bar_color=3F704D#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
 
