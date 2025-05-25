@@ -16,6 +16,7 @@ $${\color{white}"Pain\space and\space suffering\space is\space every\space day\s
 - I might be multitasking, AFK/semi-AFK, or just not in the mood… try again another time,, ♡
 
 
+Thunderbolts* Playlist by me <3 ;; <a href="https://open.spotify.com/playlist/3dv6q65XKScklvZxiPTcDR?si=132121686ddb4b2e">Spotify ;; TB* Playlist,, ! !</a>
 
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=3F704D&interchange=true&bar_color=3F704D#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
 
