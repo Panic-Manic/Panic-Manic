@@ -4,7 +4,7 @@ $${\color{white}"Pain\space and\space suffering\space is\space every\space day\s
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-**Please don’t copy my skins </3,,**
+**DONT,, COPY,, MY,, SKINS,,**
 
 - Feel free to interact anytime - unless labeled otherwise,, ! !
 - Roleplay is strongly encouraged, but never required,, ! !
