@@ -4,7 +4,7 @@ $${\color{white}"Pain\space and\space suffering\space is\space every\space day\s
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
-**Don’t copy me OR take inspo off of my skins w/o perms.**
+**Don’t copy me OR take inspo off of my skins,,**
 
 - Name? call me Yelena,, 
 - Usually chilling with friends or just vibing solo,,
