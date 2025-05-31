@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Assassinated&style=for-the-badge&color=3F704D#)
 
-$${\color{white}"Pain\space and\space suffering\space is\space every\space day\space and\space we\space are\space both\space still\space a\space trained\space killer."\space}$$
+<p align="center">``Pain and suffering is every day and we are both still a trained killer,,``
+
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
