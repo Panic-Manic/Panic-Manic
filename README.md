@@ -8,7 +8,7 @@
 **Please don't copy my skins,,**
 
 - Feel free to interact anytime - unless labeled otherwise,, ! !
-- Roleplay is encouraged, but never required,, ! !
+- Roleplay friendly,, ! !
 - C + H always welcome even if not in name,,
 - Send gimmicks on Strawpage,, ! ! <3
 
