@@ -6,7 +6,7 @@
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
 **Please don't copy my skins,,**
-║ **MINOR,, ! !**
+║ **MINOR,, ! !** ║ **Doubles DNI,,**
 
 - Feel free to interact anytime - unless labeled otherwise,,
 - Roleplay friendly,, ! !
