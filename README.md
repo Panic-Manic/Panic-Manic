@@ -6,14 +6,15 @@
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
 **Please don't copy my skins,,**
+║ **MINOR,, ! !**
 
-- Feel free to interact anytime - unless labeled otherwise,, ! !
+- Feel free to interact anytime - unless labeled otherwise,,
 - Roleplay friendly,, ! !
 - C + H always welcome even if not in name,,
 ---------------------------------
 - Send gimmicks on __Strawpage__,,
-- __Carrd__ = INT + DNI list,,
-- __Atabook__ = Leave a msg,,
+- __Carrd__ = INT 'n DNI list,,
+- __Atabook__ = Sign Ata,,
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
