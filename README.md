@@ -10,10 +10,10 @@
 - Feel free to interact anytime - unless labeled otherwise,, ! !
 - Roleplay friendly,, ! !
 - C + H always welcome even if not in name,,
-- Send gimmicks on Strawpage,, ! ! <3
-
-
-   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=3F704D&interchange=true&bar_color=3F704D#&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true)
+---------------------------------
+- Send gimmicks on __Strawpage__,, ! ! <3
+- __Carrd__ = INT + DNI list,,
+- __Atabook__ = Leave a msg,,
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
