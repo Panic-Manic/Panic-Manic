@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Assassinated&style=for-the-badge&color=3F704D#)
+![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Protected&style=for-the-badge&color=3F704D#)
 
 ***_<p align="center">``“It's your fault! I still had time, I could've saved her!”``_***
 ***_<p align="center">``“Stop acting cool and just do a real throw!”``_***
