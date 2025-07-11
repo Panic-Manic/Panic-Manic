@@ -8,7 +8,8 @@
 **Please don't copy my skins,,**
 ║ **MINOR,, ! !** ║ **Doubles DNI,,**
 
-- Hyun-Ju & Sae-Byeok Fictkin,,
+- SG;; Hyun-Ju & Sae-Byeok Fictkin,,
+- MCU;; Yelena Fictkin,,
 - Feel free to interact anytime - unless labeled otherwise,,
 - C + H always welcome even if not in name,,
 ---------------------------------
