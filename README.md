@@ -14,7 +14,7 @@
 ---------------------------------
 - __Strawpage__,, = [ Remaking. . . ]
 - __Carrd__,, = [ Remaking. . . ] 
-- __Atabook__,, = [ Remaking. . . ]
+- __Atabook__,, = Leave something nice! or dont. I dont care.
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
