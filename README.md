@@ -13,8 +13,7 @@
 - Feel free to interact anytime - unless labeled otherwise,,
 - C + H always welcome even if not in name,,
 ---------------------------------
-- __Strawpage__,, = [ Remaking. . . ]
-- __Carrd__,, = [ Remaking. . . ] 
+- __Strawpage__,, = [ Remaking. . . 
 - __Atabook__,, = Leave something nice! or dont. I dont care.
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
