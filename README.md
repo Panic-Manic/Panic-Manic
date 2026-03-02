@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Panic_Manic&base=4000)
+![](https://komarev.com/ghpvc/?username=Panic_Manic&style=for-the-badge)
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
