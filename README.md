@@ -1,4 +1,4 @@
-![Tea-Party-Guests](https://views.igorkowalczyk.dev/api/badge/Panic_Manic?label=Tea-Party-Guests,,!!)
+
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
