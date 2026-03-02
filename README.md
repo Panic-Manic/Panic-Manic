@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Tea-Party-guests&LabelColor=23032b#)
+![Tea-Party-Guests](https://views.igorkowalczyk.dev/api/badge/Panic_Manic?label=Your+own+label)
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
