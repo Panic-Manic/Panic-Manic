@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Tea-Party-guests&style=for-the-badge&color=23032b#)
+![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Tea-Party-guests&style=for-the-badge&color=23032b#labelColor=23032b#)
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
