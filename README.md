@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Panic-Manic&&label=Protected&style=for-the-badge&color=CB115A#)
 
-***_<p align="center">``“It's your fault! I still had time, I could've saved her!”``_***
-***_<p align="center">``“Stop acting cool and just do a real throw!”``_***
+***_<p align="center">``“Fragile star, burning bright!”``_***
+
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
