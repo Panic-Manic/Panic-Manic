@@ -11,7 +11,7 @@
 - Feel free to interact anytime - unless labeled otherwise,,
 - C + H always welcome even if not in name,,
 ---------------------------------
-- __Strawpage__,, = [ Remaking. . . 
+- __Strawpage__,, = Current: https://star-enthusiast.straw.page
 - __Atabook__,, = Leave something nice! or dont. I dont care.
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
