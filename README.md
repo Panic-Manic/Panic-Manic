@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=PanicManic&style=for-the-badge&color=23032b&abbreviated=true&label=Tea+Party+Guests&?format=long)
+***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=for-the-badge&color=23032b&abbreviated=true&label=Tea+Party+Guests&?format=long&?labelColor=23032b)_***
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
@@ -15,6 +15,9 @@
 - __Atabook__,, = https://panicmanic.atabook.org
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+
+
+
 
 
 
