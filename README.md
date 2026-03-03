@@ -1,4 +1,4 @@
-***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=for-the-badge&color=7B27B3&abbreviated=true&label=Tea+Party+Guests&?format=long&?labelColor=633C96)_***
+***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=for-the-badge&color=633C96&abbreviated=true&label=Tea+Party+Guests&?format=long&?labelColor=633C96)_***
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
