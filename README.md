@@ -23,7 +23,7 @@
 ***_<p align="center">[__Strawpage__ ](https://star-enthusiast.straw.page) ⚝ [__Atabook__](https://panicmanic.atabook.org) ⚝ [__Prns__](https://pronouns.cc/@Panic_Manic)_***
 
 
-***<p align="center">![](https://i.ibb.co/dJfTP1YJ/dgxhuqq-7f718bba-ec25-49fc-a1b6-bfc5f5573c0f.gif) ![](https://i.ibb.co/C5mcWNMC/dfrp0zf-51c211b8-09e8-4515-ad19-a00138ea9d39.gif)***
+
 
 
 
