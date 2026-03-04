@@ -21,13 +21,10 @@
 ***_<p align="center">[__Strawpage__ ](https://star-enthusiast.straw.page) ⚝ [__Atabook__](https://panicmanic.atabook.org) ⚝ [__Prns__](https://pronouns.cc/@Panic_Manic)_***
 
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=7a55be&bar_color_cover=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=7a55be&bar_color_cover=false">
   </a>
 </p>
-
-
-
 
 
 
