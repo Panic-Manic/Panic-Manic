@@ -7,7 +7,7 @@
 
 
 
-***<p align="center">Please don't copy my skins ,, ⚝  MINOR ,, !! ⚝  Doubles DNIUID ,,***
+***<p align="center">Please don't copy my skins & dont isnpire off of them either ,, ⚝  MINOR ,, !! ⚝  Doubles DNIUID ,,***
 
 ***_<p align="center">``“Fragile star, burning bright!”``_***
 
