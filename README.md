@@ -13,7 +13,7 @@
 
 ***<p align="center"><img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/41aebbd6-3b8e-4ce3-bb03-270a30435fcd" />***
 
-***_<p align="center">Feel free to int anytime - unless labeled otherwise  ,,_***
+***_<p align="center">Feel free to int anytime - unless labeled otherwise  ,, ⚝ C+H freely ,, !!_***
 
 
 ***<p align="center">Usually with my friend/fam group ♡ (Yes, im holding them hostage ,, )***
