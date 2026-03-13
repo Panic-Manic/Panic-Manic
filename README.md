@@ -16,6 +16,7 @@
 
 ***_<p align="center">Feel free to int anytime - unless labeled otherwise  ,, ⚝ C+H freely ,, !!_***
 
+***_<p align="center">If im unresponsive = I probably fell asleep. Happens more often than I'd like to admit._***
 
 ***<p align="center">Usually with my friend/fam group ♡ (Yes, im holding them hostage ,, )***
 
