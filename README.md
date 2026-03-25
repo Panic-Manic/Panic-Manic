@@ -8,15 +8,11 @@
 
 
 ***<p align="center">Don’t copy my skins, and don’t make skins that are obviously based on mine ,,***
-***<p align="center">MINOR ,, !! ⚝ Fictkin Doubles DNIUID ,,***
-
-***_<p align="center">``“Fragile star, burning bright!”``_***
+***<p align="center">Fictkin Doubles PLS DNIUID / DO NOT INTERACT unless I do ,,***
 
 ***<p align="center"><img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/41aebbd6-3b8e-4ce3-bb03-270a30435fcd" />***
 
-***_<p align="center">Feel free to int anytime - unless labeled otherwise  ,, ⚝ C+H freely ,, !!_***
-
-***_<p align="center">If im unresponsive = I probably fell asleep or zoned out. Happens more often than I'd like to admit._***
+***_<p align="center">Others Interact anytime unless on DND / labeled otherwise ,, Roleplay friendly !!_***
 
 ***<p align="center">Usually with my friend/fam group ♡ (Yes, im holding them hostage ,, )***
 
