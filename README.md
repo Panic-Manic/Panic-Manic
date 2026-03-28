@@ -16,7 +16,7 @@
 
 ***<p align="center">Usually with my friend/fam group ♡ (Yes, im holding them hostage ,, )***
 
-***_<p align="center">[__Strawpage__ ](https://star-enthusiast.straw.page) ⚝ [__Atabook__](https://panicmanic.atabook.org) ⚝ [__Prns__](https://pronouns.cc/@Panic_Manic)_***
+***_<p align="center">[__Strawpage__ ](https://experiment-1468.straw.page) ⚝ [__Atabook__](https://panicmanic.atabook.org) ⚝ [__Prns__](https://pronouns.cc/@Panic_Manic)_***
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true">
