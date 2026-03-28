@@ -8,7 +8,7 @@
 
 
 ***<p align="center">Don’t copy my skins, and don’t make skins that are obviously based on mine ,,***
-***<p align="center">Fictkin Doubles PLS DNIUID / DO NOT INTERACT unless I do ,,***
+***<p align="center">Fictkin Doubles respectfully DO NOT INTERACT ,,***
 
 ***<p align="center"><img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/41aebbd6-3b8e-4ce3-bb03-270a30435fcd" />***
 
