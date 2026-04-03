@@ -14,7 +14,7 @@
 
 ***_<p align="center">RP encouraged !! ,, INT anytime unless labeled otherwise ok? ok_***
 
-***_<p align="center">Check out my [__Strawpage__ ](https://experiment-1468.straw.page) - [__Pronouns.cc__](https://pronouns.cc/@Panic_Manic) - sign [__Atabook__](https://panicmanic.atabook.org) ,, /nf_***
+***_<p align="center">[__Strawpage__ ](https://experiment-1468.straw.page) ⠀ ⠀  [__Pronouns.cc__](https://pronouns.cc/@Panic_Manic) ⠀⠀   [__Atabook__](https://panicmanic.atabook.org)_***
 
 
 
