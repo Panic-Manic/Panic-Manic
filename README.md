@@ -12,17 +12,10 @@
 
 ***<p align="center"><img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/41aebbd6-3b8e-4ce3-bb03-270a30435fcd" />***
 
-***_<p align="center">Others Interact anytime unless on DND / labeled otherwise ,, Roleplay friendly !!_***
+***_<p align="center">RP encouraged !! ,, INT anytime unless labeled otherwise ok? ok_***
 
-***<p align="center">Usually with my friend/fam group ♡ (Yes, im holding them hostage ,, )***
+***_<p align="center">Check out my [__Strawpage__ ](https://experiment-1468.straw.page) - [__Pronouns.cc__](https://pronouns.cc/@Panic_Manic) - sign [__Atabook__](https://panicmanic.atabook.org) ,, /nf_***
 
-***_<p align="center">[__Strawpage__ ](https://experiment-1468.straw.page) ⚝ [__Atabook__](https://panicmanic.atabook.org) ⚝ [__Prns__](https://pronouns.cc/@Panic_Manic)_***
-
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjv4w3ywdm6phx2qhsdtpj6tbm&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=7a55be&bar_color_cover=false">
-  </a>
-</p>
 
 
 
