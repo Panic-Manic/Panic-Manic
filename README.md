@@ -1,6 +1,6 @@
 ***<p align="center">![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)***
 
-***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=plastic&color=633C96&abbreviated=true&label=Tea+Party+Guests&?format=long&?labelColor=633C96)_***
+***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=plastic&color=633C96&abbreviated=true&label=Lovely+Lillies&?format=long&?labelColor=633C96)_***
 
 
 
