@@ -10,7 +10,7 @@
 ***<p align="center">Don’t copy my skins, and don’t make skins that are obviously based on mine ,,***
 ***<p align="center">Doubles respectfully DO NOT INTERACT ,,***
 
-***<p align="center"><img width="350" height="400" alt="image" src="https://github.com/user-attachments/assets/41aebbd6-3b8e-4ce3-bb03-270a30435fcd" />***
+***<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/TDYkXPmy/image-2026-05-05-175733455.png" alt="image 2026 05 05 175733455" border="0"></a>***
 
 ***_<p align="center">RP encouraged !! ,, INT anytime unless labeled otherwise ok? ok_***
 
