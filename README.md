@@ -1,8 +1,7 @@
-***<p align="center">![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)***
+
 
 ***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=plastic&color=633C96&abbreviated=true&label=Lovely+Lillies&?format=long&?labelColor=633C96)_***
 
-***<p align="center">remaking soon ok this looks like shit for now***
 
 ***<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=&pause=4&color=7EEB83&center=true&width=700&lines=%22+An+Idle+brain+invites+the+devil+in+!+%22;%22+Father+forgive+me+for+my+sins+!+%22)](https://git.io/typing-svg)***
 
@@ -17,7 +16,7 @@
 
 
 
-***<p align="center">![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)![starspurple](https://github.com/user-attachments/assets/7dcb8bba-6e4d-41d5-97e6-97604455f053)***
+
 
 
 
