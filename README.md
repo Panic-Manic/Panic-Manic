@@ -2,10 +2,6 @@
 
 ***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=plastic&color=633C96&abbreviated=true&label=Lovely+Lillies&?format=long&?labelColor=633C96)_***
 
-
-***<p align="center">Don’t copy my skins, and don’t make skins that are obviously based on mine ,,***
-***<p align="center">Doubles respectfully DO NOT INTERACT ,,***
-
 ***<p align="center">remaking soon ok this looks like shit for now***
 
 ***_<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&letterSpacing=&pause=4&color=7EEB83&center=true&width=700&lines=An+idle+brain+invites+the+devil+in+!;Father+forgive+me+for+my+sins+!)](https://git.io/typing-svg)_***
