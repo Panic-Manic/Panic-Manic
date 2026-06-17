@@ -9,7 +9,7 @@
 
 ***<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/RGSN2BS5/image-2026-05-05-180542081.png" alt="image 2026 05 05 175733455" border="0"></a>***
 
-***<p align="center">[__Strawpage (MAIN)__ ](https://experiment-1468.straw.page) ⠀ ⠀  [__Strawpage__](https://hazygracie.straw.page) ⠀ ⠀  [__Prns.cc__](https://pronouns.cc/@Panic_Manic) ⠀⠀   [__Atabook__](https://panicmanic.atabook.org)***
+***<p align="center">[__*Carrd__ ](https://maniccentipede.carrd.co) ⠀ ⠀  [__*Strawpage__](https://maniccentipede.straw.page) ⠀ ⠀  [__*Atabook__](https://maniccentipede.atabook.org)***
 
 
 ***<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=&pause=4&color=9062EB&center=true&width=700&lines=%22+La+la+la+la+la+la+la+la+%22;%22+La+la+la+la+la+la+la+la+%22)](https://git.io/typing-svg)***
