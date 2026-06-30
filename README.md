@@ -1,18 +1,18 @@
 
 
-***_<p align="center">![](https://komarev.com/ghpvc/?username=PanicManic&style=plastic&color=633C96&abbreviated=true&label=Lovely+Lillies&?format=long&?labelColor=633C96)_***
+***_<p align="center">![](https://komarev.com/ghpvc/?username=ManicCentipede&style=plastic&color=C290F7&abbreviated=true&label=Infected&?format=long&?labelColor=C290F7)_***
 
 
-***<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=&pause=4&color=7EEB83&center=true&width=700&lines=%22+An+Idle+brain+invites+the+devil+in+!+%22;%22+Father+forgive+me+for+my+sins+!+%22)](https://git.io/typing-svg)***
+***<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=&pause=4&color=C290F7&center=true&width=700&lines=%22+Promise+I'll+be+kind+!+%22)](https://git.io/typing-svg)***
 
 
+***<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/Mkgv7rgY/image-2026-06-30-173640228.png" alt="image 2026 06 30 173640228" border="0"></a>***
 
-***<p align="center"><a href="https://imgbb.com/"><img src="https://i.ibb.co/RGSN2BS5/image-2026-05-05-180542081.png" alt="image 2026 05 05 175733455" border="0"></a>***
 
 ***<p align="center">[__*Carrd__ ](https://maniccentipede.carrd.co) ⠀ ⠀  [__*Strawpage__](https://maniccentipede.straw.page) ⠀ ⠀  [__*Atabook__](https://maniccentipede.atabook.org)***
 
 
-***<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=&pause=4&color=9062EB&center=true&width=700&lines=%22+La+la+la+la+la+la+la+la+%22;%22+La+la+la+la+la+la+la+la+%22)](https://git.io/typing-svg)***
+***<p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&letterSpacing=&pause=4&color=C290F7&center=true&width=700&lines=%22+But+I+won't+stop+until+that+girl+is+mine+!%22)](https://git.io/typing-svg)***
 
 
 
